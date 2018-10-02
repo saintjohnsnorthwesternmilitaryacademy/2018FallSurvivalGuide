@@ -4,3 +4,4 @@
 * Spitirual & Character Develpoment
 * Athletics
 * * sports at SJNMA
+    * test
