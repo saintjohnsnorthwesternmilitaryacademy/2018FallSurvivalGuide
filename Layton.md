@@ -13,3 +13,4 @@
         * Lacrouse
         * Baseball
         * Track and Field
+# NOTE: ctr+s, commit, comment,sync
