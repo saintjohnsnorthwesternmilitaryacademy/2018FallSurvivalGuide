@@ -1,2 +1,3 @@
 # Survival Guide
 #"hello"
+sync
