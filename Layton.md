@@ -3,5 +3,5 @@
 * Military
 * Spitirual & Character Develpoment
 * Athletics
- * sports at SJNMA
-    * test
+    * sports at SJNMA
+        * test
