@@ -4,4 +4,12 @@
 * Spitirual & Character Develpoment
 * Athletics
     * sports at SJNMA
-        * test
+        * Football
+        * Cross country
+        * Soccer
+        * Basketball
+        * Wrestling
+        * Swimming
+        * Lacrouse
+        * Baseball
+        * Track and Field
