@@ -1,3 +1,5 @@
 # Survival Guide
-#"hello world"
-sync
+Academics
+Military
+Spitirual & Character Develpoment
+Athletics
