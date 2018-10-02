@@ -1,5 +1,24 @@
 # Survival Guide 
-hi 
-when I saw the sign out sidde that says " Run For Your Life" I thought about doing that 
-I told my self to obay all of the ruls and do do what ever I was told to do
-I told my self to try not to make a bad first impression
+
+don't be stupid
+follow all of the rules
+obey all of your orders
+always study your standered
+always remember to wear your shirt stays
+always remember to have a good clean room and uniform
+remember to do everything that you are asked to do
+don't talk back to your leadership
+always have shine shoes
+make sure you keep your grades up
+when asking for something remember to go through the chane of camand 
+make sure to follow all of the privliges acording to your rank
+always be in the proper uniform
+always be ontime to everything
+remember to finish all of your homework
+do not fall asleep in chaple
+do not fall asleep in class
+do not be late to class
+do not miss any mandatory event
+always remember to be where you are suppost to be at the right time
+always respect your leadership
+always remember to go to bed ontime
