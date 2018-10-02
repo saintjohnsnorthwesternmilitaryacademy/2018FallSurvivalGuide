@@ -6,6 +6,6 @@
 
 .4 you will whant to also now your general orders and your mission stattment
 
-.5 this is muy imprtantay
+.5   
 
 .6 
