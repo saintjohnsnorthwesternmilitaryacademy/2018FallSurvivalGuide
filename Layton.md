@@ -1,5 +1,5 @@
 # Survival Guide
 * Academics
-Military
+* Military
 Spitirual & Character Develpoment
 Athletics
