@@ -22,3 +22,8 @@ do not miss any mandatory event
 always remember to be where you are suppost to be at the right time
 always respect your leadership
 always remember to go to bed ontime
+always remember to hand in your assignments ontime
+always remember to leave campus and come back to campus in the proper uniform 
+always remember to adress someone by there rank
+remember that if you make life easy for your leadership that they will reward you with free time and other things
+don't bring any controband iteams to campus 
