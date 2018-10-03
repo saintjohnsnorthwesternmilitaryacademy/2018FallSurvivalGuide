@@ -1,6 +1,5 @@
 # Survival Guide
 
-Would anyone like to hear a joke about ghosts?
-That's the spirit!
+why did the photo go to jail? he was framed. ha ha ha ha ha 
 
 
