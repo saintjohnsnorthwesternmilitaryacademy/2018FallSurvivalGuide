@@ -1,4 +1,3 @@
 # Survival Guide
 
-what did the duck say when he went to the lemonade stand 
-got any grapes 
+your bad joke are as funny as this school
