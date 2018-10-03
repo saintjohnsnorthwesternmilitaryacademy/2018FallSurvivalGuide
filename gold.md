@@ -1,6 +1,4 @@
 # Survival Guide
 
-Would anyone like to hear a joke about ghosts?
-That's the spirit!
-
-
+what did the duck say when he went to the lemonade stand 
+got any grapes 
