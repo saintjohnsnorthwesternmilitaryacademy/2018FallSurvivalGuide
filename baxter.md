@@ -5,7 +5,3 @@
 .3 you will whant to praktes facing movements
 
 .4 you will whant to also now your general orders and your mission stattment
-
-.5  j 
-
-.6 
