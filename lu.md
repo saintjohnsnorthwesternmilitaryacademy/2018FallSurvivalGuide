@@ -16,3 +16,4 @@
 11. always having a positive attitude.
 12. make sure your room are clean all the time
 13. don't be late to formation or class
+14. be respecful all the time.

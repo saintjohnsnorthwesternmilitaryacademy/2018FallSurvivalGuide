@@ -2,6 +2,7 @@
 
 <<<<<<< HEAD
 <<<<<<< HEAD
+<<<<<<< HEAD
 why did the photo go to jail? he was framed. ha ha ha ha ha 
 =======
 <<<<<<< HEAD
@@ -9,6 +10,9 @@ I removed your bad joke like ivan the remover removes kebab
 >>>>>>> 8f0f5c97dfbbfdc87e923e4db8f3e15888cf58a3
 =======
 >>>>>>> 269e548d45e6ce6415ab07bbcf469075cd0d0650
+=======
+your bad joke are as funny as this school
+>>>>>>> 1dd19d529cb37657d3e9181b7c5553ca09f0910a
 
 I removed your bad joke like ivan the remover removes kebab
 
