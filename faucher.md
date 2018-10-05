@@ -52,4 +52,3 @@ don't bring any controband iteams to campus
 22. always respect your leadership
 23. always remember to go to bed ontime
 >>>>>>> a973d3fe78b26da643525fc5d41769a18fbe1d0b
-   .  
