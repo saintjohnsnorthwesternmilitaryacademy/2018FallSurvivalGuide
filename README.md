@@ -15,6 +15,9 @@
         * Take your clothes to laundry
         * Exchane you Class grey shirts and pants once a week
         * Change bed sheets once every
+        * Read and remember your standard 
+        * Keep your room clean
+        * Keep your shoes shined 
 * Spitirual & Character Develpoment
     * Chapel
         * Basic Rules
