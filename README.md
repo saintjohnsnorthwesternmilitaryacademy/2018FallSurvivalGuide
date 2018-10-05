@@ -1,5 +1,4 @@
 # 2018FallSurvivalGuide
-# Survival Guide
 * Academics
 * Military
     * JROTC
