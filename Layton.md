@@ -9,6 +9,14 @@ ok# Survival Guide
 * Academics
 * Military
     * JROTC
+        * 1 lisin to your leadership.
+        * lisen to your standers thoe it is not always right. 
+
+        * you will whant to praktes facing movements.
+
+        * you will whant to also now your general orders and your mission stattment.
+
+        *  you will need to get promoted.
     * Physical
         * Do not be afraid you will not always be supper actve as you are at the begining of the year
         * If you feel as if you are falling behind you will have time to catch up
