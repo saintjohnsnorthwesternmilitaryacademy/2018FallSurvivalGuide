@@ -21,11 +21,11 @@
             * Do not fall asleep
             * Be respectful
             * Do not damage anything
-    * Communtiy Service
+    * Community Service
         * 
 * Athletics
     * sports at SJNMA
-        * Football: any one can play, don't be afraid to loose (is the army of SJNMA everyone wants to play, no one is good at it)
+        * Football: any one can play, don't be afraid to loose (it's the army of SJNMA everyone wants to play, no one is good at it)
         * Cross country: If you can't run 50 miles a week you learn to run that atleast (Yes Running is a sport)
         * Soccer: Fast paced, if your are new to the sport you will be put on JV (requiments: Run, kick, speak spanish)
         * Basketball: Need to be able to play while under tremdous physical stress, if not do able you will be put on JV (Better be able to play hood ball)
