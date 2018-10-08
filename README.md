@@ -1,4 +1,7 @@
 # 2018FallSurvivalGuide
+* discription of saint john northwestern military academy,  
+ saint john north western military academy is a military school in delafiend wiscounsin. it trains you physicaly and mentaly. it also would help you to be a leader, it trains you how to make other people listen to you. this school can also help you on loyalty, duty, responsibility, selfless service, honor, integrity and personal performance.
+
 # Survival Guide
 * Academics
 * Military
@@ -21,11 +24,11 @@
             * Do not fall asleep
             * Be respectful
             * Do not damage anything
-    * Communtiy Service
+    * Community Service
         * 
 * Athletics
     * sports at SJNMA
-        * Football: any one can play, don't be afraid to loose (is the army of SJNMA everyone wants to play, no one is good at it)
+        * Football: any one can play, don't be afraid to loose (it's the army of SJNMA everyone wants to play, no one is good at it)
         * Cross country: If you can't run 50 miles a week you learn to run that atleast (Yes Running is a sport)
         * Soccer: Fast paced, if your are new to the sport you will be put on JV (requiments: Run, kick, speak spanish)
         * Basketball: Need to be able to play while under tremdous physical stress, if not do able you will be put on JV (Better be able to play hood ball)
@@ -33,6 +36,7 @@
         * Swimming: Don't know how to swim most likly will be put on JV, (Don't Drown)
         * lacrosse: If football is the Army Lacrosse is the Marine Corp, lots of running and screaming.
         * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent     (America's Favorite past time)
+<<<<<<< HEAD
     * Track and Field
 
 
@@ -53,3 +57,6 @@
 
     V.
 
+=======
+        *  Track and Field: You likke throughtin stuff, you like running then their you go
+>>>>>>> 0803c69cdb4de9d4ced109d343ce8465d5674164
