@@ -1,15 +1,17 @@
 # 2018FallSurvivalGuide
+# Survival Guide
 * Academics
 * Military
     * JROTC
+    * remember to take your PT test to get promoted 
     * Physical
         * Do not be afraid you will not always be supper actve as you are at the begining of the year
         * If you feel as if you are falling behind you will have time to catch up
         * If you feel your not being challanged enough you will be able to join groups such as raiders for a more physical challange
     * Mental
-        * SJNMA is not Full metal jacket
+        * SJNMA is not Full metal jacket 
         * It is normal to feel like people are always watchig you
-        * It is normal  to feel stressed
+        * It is normal  to feel stressed 
     * Life
         * Take your clothes to laundry
         * Exchane you Class grey shirts and pants once a week
@@ -17,14 +19,16 @@
         * Read and remember your standard 
         * Keep your room clean
         * Keep your shoes shined 
+        * Keep you grades up 
 * Spitirual & Character Develpoment
     * Chapel
         * Basic Rules
             * Do not fall asleep
             * Be respectful
             * Do not damage anything
+            * Do not talk
     * Communtiy Service
-        * 
+        * Survise hours count towards your company points 
 * Athletics
     * sports at SJNMA
         * Football: any one can play, don't be afraid to loose (is the army of SJNMA everyone wants to play no ones good at it)
@@ -35,4 +39,4 @@
         * Swimming: Don't know how to swim most likly will be put on JV, (Dont Drown)
         * Lacrouse: If football is the Army Lacrouse is the Marine Corp, lots of running and screaming.
         * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent (Ameria varorit pass time)
-        * Track and Field: Were people think there fast but relize their not
+        * Track and Field
