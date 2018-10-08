@@ -12,9 +12,8 @@
 
 .7 you can do anything you can put your mind to.
 
-.8 use chain of cammand
+the end
 
-.9 do not get on weekend restric or tours
 
-.10 do adres your leader ship corektly 
-
+Cyber Attack >:U' what is forrest Gumps facebook password
+* 1forest1
