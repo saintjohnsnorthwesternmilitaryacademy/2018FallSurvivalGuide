@@ -1,4 +1,7 @@
 # 2018FallSurvivalGuide
+* discription of saint john northwestern military academy,  
+ saint john north western military academy is a military school in delafiend wiscounsin. it trains you physicaly and mentaly. it also would help you to be a leader, it trains you how to make other people listen to you. this school can also help you on loyalty, duty, responsibility, selfless service, honor, integrity and personal performance.
+
 # Survival Guide
 * Academics
 * Military
