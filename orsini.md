@@ -21,3 +21,21 @@ Uniformity at saint john's is what makes us a brotherhood.
 ![alt text](https://gyazo.com/e5f4f4dd81b240f1a719e5c4e906e546)
 ### There are 2 important parts to the spiritual Aspect
 #### Number 1:
+* It's important to have a strong foot in the religious aspect, so having community service hours is part of you promotion criteria.
+#### Number 2:
+* The spiritual aspect also helps with the stress of living at saint johns, because you can talk to someone about your problems
+
+## Atheletics
+### There are 2 parts to this
+#### Number 1:
+* Having basic upper-body strenght is important if your not prepared, so you will always be ready to do push ups
+#### Number 2:
+* You also can get awards from athletics like medals and ribbons
+## Academics
+### There are 3 parts to this
+#### Number 1:
+* always keep your grades up, grades are the most important thing at saint johns
+#### Number 2:
+* If you need help don't be afraid to ask for help, help isn't bad, it is actually looked apon as a good thing
+#### Number 3:
+* If your on dean's list don't give up on doing homework it's still important
