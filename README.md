@@ -7,6 +7,7 @@
 * Academics
 * good grades earn you different awards 
 * good grades earn you company points 
+* good grades earn you priviliges during study hours 
 * Military
     * JROTC
     * remember to take your PT test to get promoted 
