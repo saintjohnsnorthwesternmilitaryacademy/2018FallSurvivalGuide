@@ -37,6 +37,7 @@
         * lacrosse: If football is the Army Lacrosse is the Marine Corp, lots of running and screaming.
         * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent     (America's Favorite past time)
 <<<<<<< HEAD
+<<<<<<< HEAD
     * Track and Field
 
 
@@ -47,16 +48,19 @@
 
     Table of content
 
-    I. academic
+    I. Academic
 
-    II. military
+    II. Military
 
-    III.JROTC
+    III. JROTC
 
-    IIII.Physical
+    IIII. Physical
 
-    V.
+    V. 
 
 =======
         *  Track and Field: You likke throughtin stuff, you like running then their you go
 >>>>>>> 0803c69cdb4de9d4ced109d343ce8465d5674164
+=======
+        *  Track and Field: You like throwing stuff, you like running then there you go
+>>>>>>> 3b5659cde6f6dcca726079f828a25b2cc0d8a913
