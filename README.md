@@ -4,6 +4,8 @@
 
 # Survival Guide
 * Academics
+* good grades earn you different awards 
+* good grades earn you company points 
 * Military
     * JROTC
     * remember to take your PT test to get promoted 
@@ -43,5 +45,4 @@
         * Swimming: Don't know how to swim most likly will be put on JV, (Dont Drown)
         * Lacrouse: If football is the Army Lacrouse is the Marine Corp, lots of running and screaming.
         * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent (Ameria varorit pass time)
-        *  Track and Field: You likke throughtin stuff, you like running then their you go
-
+        *  Track and Field: You likke throughtin stuff, you like running then their 
