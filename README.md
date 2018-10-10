@@ -32,7 +32,8 @@
             * Be respectful
             * Do not damage anything
     * Community Service
-        * 
+        * service hours get you company points 
+        * service hours get you promoded 
 * Athletics
     * sports at SJNMA
         * Football: any one can play, don't be afraid to loose (it's the army of SJNMA everyone wants to play, no one is good at it)
