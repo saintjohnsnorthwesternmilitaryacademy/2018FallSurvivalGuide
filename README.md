@@ -62,7 +62,22 @@
 
     IIII. Physical
 
-    V. 
+    IV. Mental 
+
+    V. Life
+
+    VI. spirichual & charicter development
+    
+    VII. Chaple
+
+    VIII. Basic rules
+    
+    IX. community service
+
+    x. Athletics
+
+
+
 
 =======
         *  Track and Field: You likke throughtin stuff, you like running then their you go
