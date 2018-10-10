@@ -10,9 +10,9 @@
     * good grades earn you priviliges during study hours 
 * Military
     * JROTC 
-    * PT tests help you get promoted
-    * Get good grades in the class and you have a chance of getting an award 
-    * Get in the top ten in your class and you get a reath
+        *  PT tests help you get promoted
+        * Get good grades in the class and you have a chance of getting an award 
+        * Get in the top ten in your class and you get a reath
     * Physical
         * Do not be afraid you will not always be super active as you are at the beginning of the year
         * If you feel as if you are falling behind you will have time to catch up
