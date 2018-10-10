@@ -46,7 +46,7 @@
         * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent     (America's Favorite past time)
         * Track and Field: If you feel like you can run jump and sprint this is the basic human function for you
         *  Track and Field: You likke throughtin stuff, you like running then their you go
-       
+        *  Hockey if you like a challenge than this is the sport for you because your sceduale is totaly different than everyone elses 
 
 
 
