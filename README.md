@@ -45,7 +45,8 @@
         * lacrosse: If football is the Army Lacrosse is the Marine Corp, lots of running and screaming.
         * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent     (America's Favorite past time)
         * Track and Field: If you feel like you can run jump and sprint this is the basic human function for you
-
+        *  Track and Field: You likke throughtin stuff, you like running then their you go
+       
 
 
 
@@ -80,12 +81,4 @@
 
 
 
-        *  Track and Field: You likke throughtin stuff, you like running then their you go
-        *  Track and Field: You like throwing stuff, you like running then there you go
-        * Wrestling: All can play, not all will go to all the meets, mental toughness will determine weaither or not you finish the season (aLL can try most will fail)
-        * Swimming: Don't know how to swim most likly will be put on JV, (Dont Drown)
-        * Lacrouse: If football is the Army Lacrouse is the Marine Corp, lots of running and screaming.
-        * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent (Ameria varorit pass time)
-        *  Track and Field: You likke throughtin stuff, you like running then their 
-        *  Track and Field: You like throwing stuff, you like running then there you go
-
+        
