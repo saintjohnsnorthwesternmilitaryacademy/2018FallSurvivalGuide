@@ -4,7 +4,8 @@
  Saint John's Northwestern Military Academy is a Military School in Delafield Wisconsin. It trains you physicaly and mentally. It also would help you to be a leader, it trains you how to be a leader, by putting you incommand of other people other wise known as a unit. This school can also help you on loyalty, duty, responsibility, selfless service, honor, integrity and personal performance.
  
 # Survival Guide
-* Academics
+* Academics 
+![academics photo](http://www.wccnet.edu/academics/media/images/text/introduction-h2.png)
     * good grades earn you different awards 
     * good grades earn you company points 
     * good grades earn you priviliges during study hours 
