@@ -39,6 +39,7 @@
         * service hours get you promoded 
 * Athletics
     * sports at SJNMA
+    ![Wrestling photo](https://www.gannett-cdn.com/-mm-/36ef8c61190f27f5323c373a790a41701e57fc2b/c=0-181-3354-2076/local/-/media/2017/02/27/WisPub/LakeCountry/636237842457231258-JCPG-SJBA-MEDORA-WT-DSC-8871-54348557.JPG?width=3200&height=1680&fit=crop)
         * Football: any one can play, don't be afraid to loose (it's the army of SJNMA everyone wants to play, no one is good at it)
         * Cross country: If you can't run 50 miles a week you learn to run that atleast (Yes Running is a sport)
         * Soccer: Fast paced, if your are new to the sport you will be put on JV (requiments: Run, kick, speak spanish)
