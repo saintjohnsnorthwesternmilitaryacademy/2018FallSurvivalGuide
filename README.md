@@ -3,6 +3,29 @@
 * description of Saint John Northwestern Military Academy,  
  Saint John's Northwestern Military Academy is a Military School in Delafield Wisconsin. It trains you physicaly and mentally. It also would help you to be a leader, it trains you how to be a leader, by putting you incommand of other people other wise known as a unit. This school can also help you on loyalty, duty, responsibility, selfless service, honor, integrity and personal performance.
  
+# Table of content
+
+    I. Academic
+
+    II. Military
+
+    III. JROTC
+
+    IIII. Physical
+
+    IV. Mental 
+
+    V. Life
+
+    VI. spirichual & charicter development
+    
+    VII. Chaple
+
+    VIII. Basic rules
+    
+    IX. community service
+
+    x. Athletics
 # Survival Guide
 * Academics 
 ![academics photo](http://www.wccnet.edu/academics/media/images/text/introduction-h2.png)
@@ -52,34 +75,6 @@
         *  Track and Field: You likke throughtin stuff, you like running then their you go
         *  Hockey if you like a challenge than this is the sport for you because your sceduale is totaly different than everyone elses 
 
-
-
-
-
-
-    Table of content
-
-    I. Academic
-
-    II. Military
-
-    III. JROTC
-
-    IIII. Physical
-
-    IV. Mental 
-
-    V. Life
-
-    VI. spirichual & charicter development
-    
-    VII. Chaple
-
-    VIII. Basic rules
-    
-    IX. community service
-
-    x. Athletics
 
 
 
