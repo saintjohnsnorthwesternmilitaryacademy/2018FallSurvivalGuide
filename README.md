@@ -28,8 +28,7 @@
         * Change bed sheets once every 2-4 weeks(You will get bed bugs)
 * Spitirual & Character Develpoment
     * Chapel
-! [spirituallogal]
-(http://spselca.org/index.php/2018/03/20/beyond-2/)
+        ! [spirituallogal](https://d2v9y0dukr6mq2.cloudfront.net/video/thumbnail/D8qa-2E/suicidal-grave-cross-background-suicide-symbol-outdoors-rest-in-peace_hf0p9z7h__F0000.png)
         * Basic Rules
             * Do not fall asleep
             * Be respectful
