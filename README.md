@@ -29,7 +29,7 @@
 * Spitirual & Character Develpoment
     * Chapel
 |[spirituallogal]
-(https://www.google.com/search?q=cross&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiTg6__vP7dAhVq6IMKHfDzBI0Q_AUIDigB&biw=1280&bih=610#imgrc=q5LM_li0uxWFzM:) 
+(http://spselca.org/index.php/2018/03/20/beyond-2/)
         * Basic Rules
             * Do not fall asleep
             * Be respectful
