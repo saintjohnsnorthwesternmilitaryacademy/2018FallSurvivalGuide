@@ -65,17 +65,17 @@
 * Athletics
     * sports at SJNMA
     ![Wrestling photo](https://www.gannett-cdn.com/-mm-/36ef8c61190f27f5323c373a790a41701e57fc2b/c=0-181-3354-2076/local/-/media/2017/02/27/WisPub/LakeCountry/636237842457231258-JCPG-SJBA-MEDORA-WT-DSC-8871-54348557.JPG?width=3200&height=1680&fit=crop)
-        * Football: any one can play, don't be afraid to loose (it's the army of SJNMA everyone wants to play, no one is good at it)
-        * Cross country: If you can't run 50 miles a week you learn to run that atleast (Yes Running is a sport)
-        * Soccer: Fast paced, if your are new to the sport you will be put on JV (requiments: Run, kick, speak spanish)
-        * Basketball: Need to be able to play while under tremdous physical stress, if not do able you will be put on JV (Better be able to play hood ball)
-        * Wrestling: All can play, not all will go to all the meets, mental toughness will determine weaither or not you finish the season (all can try, most will fail)
-        * Swimming: Don't know how to swim most likly will be put on JV, (Don't Drown)
-        * lacrosse: If football is the Army Lacrosse is the Marine Corp, lots of running and screaming.
-        * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent     (America's Favorite past time)
-        * Track and Field: If you feel like you can run jump and sprint this is the basic human function for you
-        *  Track and Field: You likke throughtin stuff, you like running then their you go
-        *  Hockey if you like a challenge than this is the sport for you because your sceduale is totaly different than everyone elses 
+    * Football: any one can play, don't be afraid to loose (it's the army of SJNMA everyone wants to play, no one is good at it)
+    * Cross country: If you can't run 50 miles a week you learn to run that atleast (Yes Running is a sport)
+    * Soccer: Fast paced, if your are new to the sport you will be put on JV (requiments: Run, kick, speak spanish)
+     * Basketball: Need to be able to play while under tremdous physical stress, if not do able you will be put on JV (Better be able to play hood ball)
+    * Wrestling: All can play, not all will go to all the meets, mental toughness will determine weaither or not you finish the season (all can try, most will fail)
+    * Swimming: Don't know how to swim most likly will be put on JV, (Don't Drown)
+     * lacrosse: If football is the Army Lacrosse is the Marine Corp, lots of running and screaming.
+    * Baseball: If you are new to the sport you will be placed on JV unless you have natural talent     (America's Favorite past time)
+    * Track and Field: If you feel like you can run jump and sprint this is the basic human function for you
+    *  Track and Field: You likke throughtin stuff, you like running then their you go
+    *  Hockey if you like a challenge than this is the sport for you because your sceduale is totaly different than everyone elses 
 
 
 
