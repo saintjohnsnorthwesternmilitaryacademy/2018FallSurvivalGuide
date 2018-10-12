@@ -35,6 +35,7 @@
 * Military
 
 ![military photo](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTjBjVh8QBKaUe7K3SIC_ml4P50eyxFIoExMJMTM629Q3SHAu-3)
+   
     * JROTC 
         *  PT tests help you get promoted
         * Get good grades in the class and you have a chance of getting an award 
