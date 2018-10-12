@@ -33,6 +33,7 @@
     * good grades earn you company points 
     * good grades earn you priviliges during study hours 
 * Military
+
 ![military photo](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTjBjVh8QBKaUe7K3SIC_ml4P50eyxFIoExMJMTM629Q3SHAu-3)
     * JROTC 
         *  PT tests help you get promoted
